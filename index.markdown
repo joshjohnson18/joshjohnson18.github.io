@@ -1,3 +1,0 @@
-# Josh Johnson
-
-<img src=""/>
